@@ -7,5 +7,5 @@
 - 💬 Ask me about ... whatever!
 - 📫 How to reach me: ... via email: i.kirshak@gmail.com
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... 404 Fun Not Found ¯\_(ツ)_/¯
+- ⚡ Fun fact: ... 404 Fun Not Found  ¯\_(ツ)_/¯
 
